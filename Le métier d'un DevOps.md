@@ -1,0 +1,1 @@
+Bonjour, pouvez-vous m'aider à rédiger un article de blog sur le métier de DevOps ?
